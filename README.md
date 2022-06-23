@@ -1,0 +1,2 @@
+# abdulsatar
+Fake owner copyright
